@@ -1,5 +1,5 @@
 </p>
-<p align=center> <a href="https://rentry.co/argmizu">rentry</a>ㅤㅤ౨ৎㅤㅤ<a href="https://x.com/httpss_mizu">twitter/x</a>
+<p align=center> <a href="https://rentry.co/argmizu">rentry</a>ㅤㅤ౨ৎㅤㅤ<a href="https://x.com/urghostlyfriend">twitter/x</a>
 
 </p>
 <p align="center">
